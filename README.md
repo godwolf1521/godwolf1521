@@ -1,5 +1,5 @@
 # 💫 About Me:
-- 👋 Hi, I’m @shirsh<br>- 👀 I’m interested in developing
+- 👋 Hi, I’m @shirish<br>- 👀 I’m interested in developing
 
 
 ## 🌐 Socials:
